@@ -1,0 +1,2 @@
+# MozhinyaCodesAI
+Aboutme  
